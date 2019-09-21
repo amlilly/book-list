@@ -8,3 +8,4 @@ Share with friends feature?
 
 Track reading progress?
 
+Books!
